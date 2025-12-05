@@ -31,7 +31,7 @@ https://docs.google.com/document/d/1RBJm5QHKLgH-Q8yzZdywsOT3s9ydpjfslqD2qfYjpM8/
 
 # Cuốn báo cáo 
 
-# Standê % Demo 
+# Standee % Demo 
 
 Workshop 1 : https://sites.google.com/view/chem-cong-nghe/home?authuser=0
 
